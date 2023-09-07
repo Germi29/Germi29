@@ -15,7 +15,6 @@
 # Contacto
 <p align="left">
 <a href="https://instagram.com/casti.gm" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/instagram.svg" alt="casti.gm" height="30" width="40" /></a>
-<a href="https://discordapp.com/users/334486742616899584" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/discord.svg" alt="https://discordapp.com/users/334486742616899584" height="30" width="40" /></a>
 </p>
 
 > **Try not. Do or do not. There is no try.** —Yoda
