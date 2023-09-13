@@ -1,4 +1,4 @@
-![rainbow-line](https://github.com/MMaNaMM/MMaNaMM/assets/117526041/5328059d-0c3a-4cb8-b5c2-fd73fbc8c16e)![rainbow-line](https://github.com/MMaNaMM/MMaNaMM/assets/117526041/5328059d-0c3a-4cb8-b5c2-fd73fbc8c16e)
+![rainbow-line](https://github.com/MMaNaMM/MMaNaMM/assets/117526041/5328059d-0c3a-4cb8-b5c2-fd73fbc8c16e)
 # 🌠Hi! I'm Germán Castillo🌠
 
 
@@ -21,4 +21,4 @@
 
 > **Try not. Do or do not. There is no try.** —Yoda
 
-![rainbow-line](https://github.com/MMaNaMM/MMaNaMM/assets/117526041/5328059d-0c3a-4cb8-b5c2-fd73fbc8c16e)![rainbow-line](https://github.com/MMaNaMM/MMaNaMM/assets/117526041/5328059d-0c3a-4cb8-b5c2-fd73fbc8c16e)
+![rainbow-line](https://github.com/MMaNaMM/MMaNaMM/assets/117526041/5328059d-0c3a-4cb8-b5c2-fd73fbc8c16e)
